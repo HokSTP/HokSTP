@@ -1,7 +1,7 @@
 สวัสดี 😏 ฉันชื่อเศรษฐพงศ์ อังโชติพันธ์
 =======================================
 
-* 🌍 ฉันอยู่ในป
+* 🌍  I'm based in กรุงเทพ
 * ✉️ สามารถติดต่อผมได้[ที่](mailto:s) [setthaphongblack@gmail.com](mailto:setthaphongblack@gmail.com)
 
 ### ทักษะ
